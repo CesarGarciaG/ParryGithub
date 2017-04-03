@@ -1,0 +1,7 @@
+- Parry Hotter y El Bucle Filosofal
+- Parry Hotter y La Clave Secreta del Wifi
+- Parry Hotter y El Prisionero del Firewall
+- Parry Hotter y El Malware de Fuego
+- Parry Hotter y La Orden de Unix
+- Parry Hotter y El Misterio del Hacker
+- Parry Hotter y Los Commits de la Muerte
